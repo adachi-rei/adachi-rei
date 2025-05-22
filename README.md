@@ -19,7 +19,7 @@
   project sekai ㅤvocaloid ㅤmadoka magica
 </p>
 <p align="center">
-  deltarune ㅤlife series
+  deltarune ㅤlife series ㅤbandori
 </p>
 
 ㅤ
