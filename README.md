@@ -24,5 +24,8 @@
 
 ㅤ
 <p align="center">
-  proshippers/darkshippers ㅤ bigots
+  proshippers/darkshippers/whatever you go by👎
+</p>
+<p align="center">
+  bigots 👎 zionists ❌ weirdos in general
 </p>
