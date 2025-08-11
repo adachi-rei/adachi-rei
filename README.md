@@ -29,3 +29,9 @@
 <p align="center">
   bigots 👎 zionists ❌ weirdos in general
 </p>
+
+ㅤ
+ㅤ
+ㅤ
+
+psst... if you're an rper [click me](https://lookingforrpers.straw.page/)
