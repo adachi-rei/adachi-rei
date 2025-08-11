@@ -19,7 +19,7 @@
   project sekai ㅤvocaloid ㅤmadoka magica
 </p>
 <p align="center">
-  deltarune ㅤlife series ㅤh*mestuck
+  deltarune ㅤlife series ㅤh*mestuck ㅤumamusume
 </p>
 
 ㅤ
