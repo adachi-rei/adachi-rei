@@ -27,7 +27,7 @@
   proshippers/darkshippers/whatever you go by
 </p>
 <p align="center">
-  bigots 👎 zionists ❌ weirdos in general
+  bigots 🚫 zionists 👎 tcc ❌ weirdos in general
 </p>
 
 ㅤ
