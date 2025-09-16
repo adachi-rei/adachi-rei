@@ -19,7 +19,7 @@
   project sekai ㅤvocaloid ㅤmadoka magica
 </p>
 <p align="center">
-  deltarune ㅤlife series ㅤh*mestuck ㅤumamusume
+  deltarune ㅤlife series ㅤhomestuck ㅤumamusume
 </p>
 
 ㅤ
@@ -31,7 +31,10 @@
 </p>
 
 ㅤ
-ㅤ
+<p align="center">
+  I DO NOT SUPPORT ADACHI REI'S CREATOR!!!!
+</p>
+
 ㅤ
 
 psst... if you're an rper [click me](https://lookingforrpers.straw.page/)
